@@ -1,0 +1,1 @@
+[(2) [РЕЛИЗ] [7.3.5] SPPNXT LEGION - PlayerBot/Partybot Wanderers - Одиночные LFG | RaGEZONE — форумы по развитию MMO](https://forum.ragezone.com/threads/release-7-3-5-sppnxt-legion-playerbot-partybot-wanderers-solo-lfgs.1263889/)
